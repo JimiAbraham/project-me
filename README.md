@@ -1,2 +1,3 @@
 # project-me
 stilll a learner
+yeeah...it my first time doing things like this.....
